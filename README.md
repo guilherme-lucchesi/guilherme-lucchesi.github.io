@@ -1,1 +1,0 @@
-# guilherme-lucchesi.github.io
